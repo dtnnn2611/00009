@@ -19,4 +19,4 @@
 每天更新的热门排行榜、精选推荐和专题合辑，让您不错过任何一部精彩影片。所有日本AV均支持在线播放和高速加载，配合中文字幕及高清画质，带给您极致观影体验。
 
 本网站内容全部免费，并坚持每日更新，确保影片新鲜度，带来比同类资源站更快的更新速度和更多影片选择。喜欢日本AV的您，赶快收藏我们的网站，每天第一时间观看日本AV免费影片，畅享无限精彩！
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dtnnn2611/00009 ）</span>
